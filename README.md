@@ -15,7 +15,7 @@ The three boys that make up O Side Mafia are crowded around a street food cart o
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1fRLcqxVwpzpua8E6Se2sN?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 # HEvabi 
-![alt text](https://im3.ezgif.com/tmp/ezgif-3-9de9806f9c.png)
+![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fopen.spotify.com%2Fartist%2F4zpGxqF6oI1h3f6Md2v42T&psig=AOvVaw1MQVVGsv-Q_VbJTPeIAJ_N&ust=1704333978827000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMDA1POSwIMDFQAAAAAdAAAAABAD)
 
 Hev Abi is a popular artist from Philippines. Popnable collects information about 14 songs by Hev Abi. The highest Hev Abi 's charting position is #2 , and the worst ranking place is #481 . Hev Abi's songs spent 4 weeks in the charts. Hev Abi appeared in Top Chart that measure the best Filipino musicians/bands and the highest position noted by Hev Abi is 2. The worst result is 481.
 

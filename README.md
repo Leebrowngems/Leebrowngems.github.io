@@ -1,7 +1,7 @@
 # GOAT
 Sean Joseph Nestor V. Velarde
 # Lebron James
-![alt text](https://www.pinterest.com/pin/891079476258725898/)
+![alt text](https://i.pinimg.com/236x/a2/2f/9f/a22f9f118220920194161607a7e144c0.jpg)
 
  American professional basketball player for the Los Angeles Lakers of the National Basketball Association (NBA). Nicknamed "King James", he is widely recognized as one of the greatest players in the history of the sport and is often compared to Michael Jordan in debates over the greatest basketball player of all time.[a] He has competed in 10 NBA Finals (with eight consecutive appearances from 2011 to 2018) winning four NBA championships.[1] He also won the inaugural NBA Cup in 2023 with the Lakers, and two Olympic gold medals as a member of the U.S. men's national team.
 
